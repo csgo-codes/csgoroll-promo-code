@@ -1,4 +1,4 @@
-CSGORoll Promo Code 2025 - Use “100MAX” for 3 Free Cases and 5% Bonus
+# CSGORoll Promo Code 2025 - Use “100MAX” for 3 Free Cases and 5% Bonus
 ![CSGORoll Promo Code (2)](https://github.com/user-attachments/assets/cbc429a1-6c9b-4f26-9171-4df39a584eff)
 
 Start your CSGORoll experience with the promo code 100MAX to unlock exclusive rewards immediately. You will receive 3 free CSGO cases and a 5% bonus on your first deposit when you claim this code as a new player. For example, depositing $200 will give you an additional $10 bonus, giving you $210 to play with. The free cases also offer a chance to win valuable skins or items. If you refer a friend who deposits using your code, you can earn $20 in affiliate rewards.
