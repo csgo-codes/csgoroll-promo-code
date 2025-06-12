@@ -12,10 +12,10 @@ Start your CSGORoll experience with the promo code 100MAX to unlock exclusive re
  | Deposit Bonus | EGG100 | get +5% deposit bonus |
 
  ### Additional Promo Codes
- [CSGOEmpire Promo Code](https://github.com/csgo-codes/csgoempire-promo-code)
- [Hellcase Promo Code](https://github.com/csgo-codes/hellcase-promo-code)
- [CSGO500 Promo Code](https://github.com/csgo-codes/csgo500-promo-code)
- [CSGOLuck Promo Code](https://github.com/csgo-codes/csgoluck-promo-code)
+1. [CSGOEmpire Promo Code](https://github.com/csgo-codes/csgoempire-promo-code)
+2. [Hellcase Promo Code](https://github.com/csgo-codes/hellcase-promo-code)
+3. [CSGO500 Promo Code](https://github.com/csgo-codes/csgo500-promo-code)
+4. [CSGOLuck Promo Code](https://github.com/csgo-codes/csgoluck-promo-code)
 
 ## How to Use the CSGORoll Promo Code
 
