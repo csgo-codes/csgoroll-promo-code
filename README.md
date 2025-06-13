@@ -16,6 +16,7 @@ Start your CSGORoll experience with the promo code 100MAX to unlock exclusive re
 2. [Hellcase Promo Code](https://github.com/csgo-codes/hellcase-promo-code)
 3. [CSGO500 Promo Code](https://github.com/csgo-codes/csgo500-promo-code)
 4. [CSGOLuck Promo Code](https://github.com/csgo-codes/csgoluck-promo-code)
+5. [Shuffle Promo Code](https://github.com/csgo-codes/shuffle-promo-code)
 
 ## How to Use the CSGORoll Promo Code
 
